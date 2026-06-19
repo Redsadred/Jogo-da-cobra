@@ -1,1 +1,0 @@
-essa é a resenha da cobrinha
